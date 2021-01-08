@@ -8,3 +8,6 @@
 
 # [Toke - Natsukihina](https://coreanmaluco.s-ul.eu/2B338a5j)
 ![](https://osu.ppy.sh/ss/16045509/dc49)
+
+# [YUGEN (Corean)](https://coreanmaluco.s-ul.eu/o6Ol70Q9)
+![](https://osu.ppy.sh/ss/16045567/af94)
